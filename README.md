@@ -12,4 +12,4 @@ anna.boas.cardoso@escola.pr.gov.br
 
 @annalauracardoso
 
-![](https://tenor.com/pt-BR/search/confused-gifs) 
+![](https://tenor.com/pt-BR/view/schools-out-for-summer-time-gif-21736092) 
