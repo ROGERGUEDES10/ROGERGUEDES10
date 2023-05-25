@@ -7,3 +7,9 @@ Meu nome é Anna Laura Cardoso
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos.
 
 ### Você entrar em contato comigo 
+
+anna.boas.cardoso@escola.pr.gov.br
+
+@annalauracardoso
+
+![](https://tenor.com/pt-BR/search/confused-gifs) 
